@@ -1,12 +1,12 @@
 # 请务必收藏此页面，防止地址丢失。
 
-最新地址一: www.sj123.cf
+最新地址一: https://sj123.gq/
 
-最新地址一: www.sjzxsp.ml
+最新地址一: https://sjzxsp.gq/
 
 最新地址一: www.mfmp4.com
 
-最新地址一: www.sj123.ml
+最新地址一: https://sjsp.cf/
 
 最新地址一: www.cq1288.com
 
