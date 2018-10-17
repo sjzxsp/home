@@ -4,11 +4,9 @@
 
 最新地址一: https://sjzxsp.gq/
 
-最新地址一: www.mfmp4.com
+最新地址一: https://piliyuzhou.com/
 
 最新地址一: https://sjsp.cf/
-
-最新地址一: www.cq1288.com
 
 发送任意邮件到 sjzxsp@gmail.com 自动获取最新地址
 
