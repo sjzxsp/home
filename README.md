@@ -1,9 +1,5 @@
 # 请务必收藏此页面，防止地址丢失。
 
-最新地址一: https://sj123.gq/
-
-最新地址一: https://sjzxsp.gq/
-
 最新地址一: https://piliyuzhou.com/
 
 最新地址一: https://sjsp.cf/
