@@ -6,7 +6,7 @@
 
 发送任意邮件到 sjzxsp@gmail.com 自动获取最新地址
 
-美国绿色导航 https://www.mglsdh.com
+美国绿色导航 http://www.mglsdh.com
 
 # 打不开本站怎么办？请查看以下常见问题办法
 
