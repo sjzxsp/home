@@ -1,12 +1,10 @@
 # 请务必收藏此页面，防止地址丢失。
 
-最新地址一: https://dianwanren.com/
+最新地址一: https://www.mfmp4.com
 
-最新地址一: https://sjsp.cf/
 
 发送任意邮件到 sjzxsp@gmail.com 自动获取最新地址
 
-美国绿色导航 http://www.mglsdh.com
 
 # 打不开本站怎么办？请查看以下常见问题办法
 
